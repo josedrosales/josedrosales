@@ -7,11 +7,11 @@
 
 - 👯 I’m looking to collaborate on **Data Science and Data Analysis Projects**
 
-- 💬 Ask me about **Data Analysis, Decision making, Market research**
+- 💬 Ask me about **Data Analysis, Business Intelligence, Decision making, Market research**
 
 - 📫 How to reach me **josed.rosales95@gmail.com**
 
-- ⚡ Fun fact **I like to have deep conversations with people, and also enjoy playing and watching sports**
+- ⚡ Fun fact **I like to meet new people and I also enjoy playing and watching sports**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
